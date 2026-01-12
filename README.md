@@ -1,4 +1,6 @@
 
 
-Hai! i'm Cat or Zuri idrc!!
+　🍀　Cat or Zuri!!　
+﹕she 　 ฺ　her　 ฺ　　◡◡⁠
 
+      DNI IF.. 
