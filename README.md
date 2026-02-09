@@ -16,7 +16,7 @@
 
 <p align="center">https://fangdwolf.straw.page/
    <p align="center">
-   https://fearsnmind.atabook.org/https://fearsnmind.atabook.org/
+   https://fearsnmind.atabook.org
 <p align="center">
 dni if,
 proshippers, darkshippers, comshippers, shtwt and shedtwt users. 
