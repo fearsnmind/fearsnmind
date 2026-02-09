@@ -12,7 +12,8 @@
 <p align="center">
 ୨୧  i most likey wont int first
    <p align="center">
-‎╬╬═════════════╬╬
+<img width="1080" height="70" alt="italy_solo_divider" src="https://github.com/user-attachments/assets/b823d3f0-6fe0-4fbd-bd99-ee9ac5a927b7" />
+
 <p align="center">https://fangdwolf.straw.page/
    <p align="center">
    https://fearsnmind.atabook.org/https://fearsnmind.atabook.org/
