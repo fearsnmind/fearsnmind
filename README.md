@@ -18,7 +18,7 @@
    <p align="center">
    https://fearsnmind.atabook.org
 <p align="center">
-   <p align="center"> FOR MORE INFO READ https://rentry.co/x7xk6dgr
+
    <p align="center">
 dni if,
 proshippers, darkshippers, comshippers, shtwt and shedtwt users. 
