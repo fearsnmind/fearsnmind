@@ -20,6 +20,5 @@
 <p align="center">
 
    <p align="center">
-dni if,
-proshippers, darkshippers, comshippers, shtwt and shedtwt users. 
+https://rentry.co/fearsnmind
 
