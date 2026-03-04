@@ -1,7 +1,7 @@
 
 
 <p align="center">
-   <img width="600" height="500" alt="Untitled788_20260304172700" src="https://github.com/user-attachments/assets/c902d553-1900-4d22-9fa6-006a73b98371" />
+   <img width="500" height="500" alt="Untitled788_20260304172700" src="https://github.com/user-attachments/assets/c902d553-1900-4d22-9fa6-006a73b98371" />
 
 
    
