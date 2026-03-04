@@ -1,18 +1,15 @@
 
 
 <p align="center">
-   
+   <img width="600" height="500" alt="Untitled788_20260304172700" src="https://github.com/user-attachments/assets/c902d553-1900-4d22-9fa6-006a73b98371" />
 
-   <img width="500" height="400" alt="IMG_0962" src="https://github.com/user-attachments/assets/b2dafea2-caaf-4323-851a-5bbddd40070d" />
+
    
 
 <p align="center">
  𝘡𝘶𝘳𝘪 / 𝘤𝘢𝘵　﹒ ღ   𝘚𝘩𝘦 / 𝘩𝘦𝘳  
- 
 <p align="center">
-୨୧  most likey wont int first.
-   <p align="center">
-<img width="1080" height="70" alt="italy_solo_divider" src="https://github.com/user-attachments/assets/b823d3f0-6fe0-4fbd-bd99-ee9ac5a927b7" />
+(art not mine.)
 
 <p align="center">https://fangdwolf.straw.page/
    <p align="center">
