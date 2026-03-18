@@ -5,6 +5,6 @@
 <p align="center">
 ⠀W2I.⠀⠀⠀　⠀𓏼⠀socialy akward, iwc/iwec.　𓈒 ⠀⠀⠀
 <p align="center">
-  ⠀⠀⏝⠀⠀　⠀゛blahbkahblah idk what to put here ⸝⸝ .ᐟ ⋆
+  ⠀⠀⏝⠀⠀　⠀゛⁴⁰ ᵈᵃʸˢ ᵃⁿᵈ ᴵ ᵐⁱˢˢ ʸᵒᵘ. ᴵ’ᵐ ˢᵒ ʰⁱᵍʰ ᵗʰᵃᵗ ᴵ ˡᵒˢᵗ ᵐʸ ᵐⁱⁿᵈ. ⸝⸝ .ᐟ ⋆
 <p align="center">
-WIP.
+i lav my friends
