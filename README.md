@@ -1,5 +1,7 @@
 <p align="center">
-<img width="500" height="600" alt="Untitled805_20260317231729" src="https://github.com/user-attachments/assets/6923d716-3684-400e-8f1a-93a35367829c" />
+<img width="400" height="420" alt="IMG_1457" src="https://github.com/user-attachments/assets/a42bc56b-34a3-4429-b2b8-111d8280a484" />
+
+
    <p align="center">
    ˳⠀⠀⠀cat⠀ノ⠀⠀zuri .⠀ ᛝ
 <p align="center">
