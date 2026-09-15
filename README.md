@@ -1,7 +1,9 @@
 
 
- <p align="center">
-  <img width="600" height="400" alt="IMG_2803" src="https://github.com/user-attachments/assets/405428ce-4daf-4f8a-b759-c8d0ec1469b7" />
+
+ <img width="600" height="400" alt="Untitled915_20260914211902" src="https://github.com/user-attachments/assets/425741a4-054f-4ef0-8e1a-a15ddbe126d6" />
+
+
  <p align="center">
    ˳⠀⠀⠀catty⠀ノ⠀⠀zozo .⠀ ᛝ
 <p align="center">
